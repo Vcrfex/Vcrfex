@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vcrfex
 - 👀 I’m interested in philosophy
-- 🌱 I’m currently learning content creation
-- 💞️ I’m looking to collaborate on YT
+- 🌱 I’m currently learning lore
+- 💞️ I’m looking to collaborate on a new project of mine regarding minecraft
 - 📫 How to reach me vortex.spearmint133@passinbox.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: An @ looks like a whirlwind from above
