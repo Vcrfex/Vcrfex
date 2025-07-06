@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vcrfex
+- 👋 Hi, I’m @Vortex
 - 👀 I’m interested in philosophy
 - 🌱 I’m currently learning lore
 - 💞️ I’m looking to collaborate on a new project of mine regarding minecraft
